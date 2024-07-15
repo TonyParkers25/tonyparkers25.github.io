@@ -3,3 +3,4 @@
 - [https://x.com/TonyParkers25](https://x.com/TonyParkers25)
 - [https://medium.com/@TonyParkers25](https://medium.com/@TonyParkers25)
 - [https://www.reddit.com/user/TonyParkers25/](https://www.reddit.com/user/TonyParkers25/)
+- [https://www.youtube.com/watch?v=nmJxhm8ZeIo](https://www.youtube.com/watch?v=nmJxhm8ZeIo)
