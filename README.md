@@ -2,6 +2,5 @@
 - [https://tonyparkers25.quora.com/](https://tonyparkers25.quora.com/)
 - [https://x.com/TonyParkers25](https://x.com/TonyParkers25)
 - [https://medium.com/@TonyParkers25](https://medium.com/@TonyParkers25)
-- [https://www.reddit.com/user/TonyParkers25/](https://www.reddit.com/user/TonyParkers25/)
 - [https://www.youtube.com/watch?v=nmJxhm8ZeIo](https://www.youtube.com/watch?v=nmJxhm8ZeIo)
 - [Call of Duty Gets WWE Crossover With Season 5](https://medium.com/@TonyParkers25/call-of-duty-gets-wwe-crossover-with-season-5-58dc910fbc94)
